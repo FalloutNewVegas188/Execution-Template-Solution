@@ -1,5 +1,4 @@
 
-In this exercise
 
 
 
