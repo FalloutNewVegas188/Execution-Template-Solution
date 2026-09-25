@@ -1,5 +1,3 @@
-In this exercise
-
 
 
 
