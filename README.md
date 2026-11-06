@@ -1,4 +1,3 @@
-In this exercise
 
 
 
